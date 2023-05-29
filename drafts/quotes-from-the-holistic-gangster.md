@@ -28,3 +28,8 @@ The accomplishments and credentials of Paul Chek would be too much even for a de
 "support everyone, love even the ugly, because the ugly got ugly somehow"
 
 
+"when you find out that this thing we call a soul is God within you, and its there all the time, totally willing to guide you and support you, it's quite a marvelous experience"
+
+"opportunity always had to have resistance nearby or there is no action potential"
+
+"the resistance on the heroes journey has to be there, or the hero cannot be made, and we are not sure who we really are until we make a hero out of ourselves. But the trick is only you can decide when you are hero enough to stop trying so hard to prove something. And that is the day you become a man or a woman"
